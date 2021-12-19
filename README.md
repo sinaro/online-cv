@@ -1,6 +1,7 @@
 # SINA ROSTAMI
-![119176094_1377764815757401_3692497443508069685_n](https://user-images.githubusercontent.com/13781760/146680939-f14d16b2-9ede-4cdc-8aca-d60d21667564.jpg)
 
+
+<a href="https://drive.google.com/uc?export=view&id=<1CeL7Y9G98JxgbyutEsfw4nIHeZf6-2qA>"><img src="https://drive.google.com/uc?export=view&id=<FILEID>" style="width: 650px; max-width: 100%; height: auto" title="Click to enlarge picture" />
 _Postdoc at the Cancer Registry of Norway_ <br>
 [Email](mailto:rostami.sina1@gmail.com) / [Twitter](https://twitter.com/SinaRostami21)
 

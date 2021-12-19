@@ -1,6 +1,6 @@
 # SINA ROSTAMI
 
-<a href="https://drive.google.com/uc?export=view&id=1CeL7Y9G98JxgbyutEsfw4nIHeZf6-2qA"><img src="https://drive.google.com/uc?export=view&id=1CeL7Y9G98JxgbyutEsfw4nIHeZf6-2qA" style="width: 220px; max-width: 30%; height: auto" title="Click to enlarge picture" /> <br>
+<a href="https://drive.google.com/uc?export=view&id=1CeL7Y9G98JxgbyutEsfw4nIHeZf6-2qA"><img src="https://drive.google.com/uc?export=view&id=1CeL7Y9G98JxgbyutEsfw4nIHeZf6-2qA" style="width: 250px; max-width: 100%; height: auto" title="Click to enlarge picture" /> <br>
   
 _Postdoc at the Cancer Registry of Norway_ <br>
 [Email](mailto:rostami.sina1@gmail.com) / [Twitter](https://twitter.com/SinaRostami21)
